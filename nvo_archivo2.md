@@ -1,0 +1,1 @@
+El señor invierno se viste de blanco, se pone el abrigo porque está temblando. Se va a la montaña, se mete en el río, y el parque y la calle se llenan de frío. Se encuentra a la lluvia llorando, llorando, y también al viento que viene soplando. ¡Ven amigo sol!
